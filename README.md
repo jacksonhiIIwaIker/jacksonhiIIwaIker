@@ -6,5 +6,5 @@
 
    
 <p align="center">
-  ([rentries im trading](https://rentry.co/urlhavendotcom))
+  (rentries im trading - https://rentry.co/urlhavendotcom)
    </p>
