@@ -7,7 +7,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 **IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during                
 *[ im pretty pissy and whiny like 24/7 so i dont think that matters ]*
 
-**ENDO** / **WILLOGENIC** systems dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
+**ENDO** / **WILLOGENIC** systems or any other harmful things dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
 Gomen if you get tired of me saying im gay it's kind of something i can't stop myself from saying ahah( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )( ദ്ദി ˙ᗜ˙ )
 
