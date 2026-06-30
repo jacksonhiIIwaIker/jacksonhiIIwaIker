@@ -6,7 +6,7 @@ hi um call me **S**unset or **J**ack
 
 **IWC** especially after fsr / fts / gtc / mafia, we get pretty pissy after / during
 
-singlet but since i have a few plural friends **ENDO** / **WILLOGENIC** systems dni uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
+singlet but since i have a few plural friends **ENDO** / **WILLOGENIC** systems dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
 thats all you need to know okay bye
 
