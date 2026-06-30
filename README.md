@@ -20,7 +20,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 **I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , William Hillwalker [ THE BUTCHERY ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
 *I'd also prefer if doubles don't interact . . I am soft sharing with William though ,*
 
-**FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]                                                                                                                          *And again , if you yumeship with us please dni it kind of makes me uneasy*
+**FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ] ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*And again , if you yumeship with Dr. Clef or Evbo in general please dni it kind of makes me uncomfy*
 
 <sub>*i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us , it's just more comfortable for me to use*</sub>
 
