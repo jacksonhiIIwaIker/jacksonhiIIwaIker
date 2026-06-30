@@ -13,7 +13,7 @@ Gomen if you get tired of me saying im gay it's kind of something i can't stop m
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
-**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , and others
+**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
 
 **I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , William Hillwalker [ THE BUTCHERY ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ]
 
