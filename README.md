@@ -6,7 +6,7 @@
 
 hi um call me **S**unset or **J**ack , I am 14 years old
 
-**IWC** or just dont interact at all unless you're oomf especially after fsr / fts / gtc / mafia, we get pretty pissy after / during                
+**IWC** or just dont interact at all unless you're oomf especially after / during fsr / fts / gtc / mafia, we get pretty rude                
 *[ tbf im pretty pissy and rude / whiny like 24/7 either way so i dont think that matters ]*
 
 **ENDO** / **WILLOGENIC** systems or any other harmful things dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
