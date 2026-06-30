@@ -19,7 +19,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 **FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]
 
-> i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us on myself sometimes , it's just more comfortable for me to use
+<sub>*i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us on myself sometimes , it's just more comfortable for me to use*</sub>
 
 --------------------------
 
