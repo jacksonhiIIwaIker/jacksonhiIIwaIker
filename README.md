@@ -11,7 +11,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
-**MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , 2017 / Inversaldamage 💝
+**MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , 2017 / Inversaldamage 💝
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
