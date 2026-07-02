@@ -1,6 +1,6 @@
 # iwec <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 
-> "No , no , I respect your boundaries."
+> " No , no , don't worry . I respect your boundaries . "
 
 <p align="center">
 <img width="288" height="288" alt="oNdL404" src="https://github.com/user-attachments/assets/7be22b5c-55d9-45fb-84cd-70aa016c7a28" />
