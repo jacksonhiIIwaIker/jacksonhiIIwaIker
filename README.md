@@ -3,7 +3,7 @@
 > "No , no , I respect your boundaries."
 
 <p align="center">
-<img width="384" height="384" alt="oNdL404" src="https://github.com/user-attachments/assets/7be22b5c-55d9-45fb-84cd-70aa016c7a28" />
+<img width="256" height="256" alt="oNdL404" src="https://github.com/user-attachments/assets/7be22b5c-55d9-45fb-84cd-70aa016c7a28" />
 </p>
 
 ****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
