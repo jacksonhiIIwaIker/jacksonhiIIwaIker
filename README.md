@@ -1,7 +1,9 @@
 # iwec <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 
 > " No , no , don't worry . I respect your boundaries . "
-
+<p align="center">
+![TEST](https://komarev.com/ghpvc/?username=cleavercap&abbreviated=true)
+</p>
 <p align="center">
 <img width="288" height="288" alt="oNdL404" src="https://github.com/user-attachments/assets/7be22b5c-55d9-45fb-84cd-70aa016c7a28" />
 </p>
@@ -68,5 +70,5 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 <img width="150" height="20" alt="775632b0394c5bd56271e83042d23a9436635d42" src="https://github.com/user-attachments/assets/a6e02dfb-837c-4a04-9933-d251ac989962" />
 <img width="150" height="20" alt="9f4284b961afbe5324ad61949a14bd570cd233b2" src="https://github.com/user-attachments/assets/7b3da137-8ea7-4337-a16e-13206bc01c4f" />
 
-![TEST](https://komarev.com/ghpvc/?username=cleavercap&abbreviated=true)
+
 
