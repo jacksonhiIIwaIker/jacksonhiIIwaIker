@@ -15,7 +15,7 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 **NOT REALLY GOOD** at communicating with people I don't know , so expect me to pause for a couple seconds to think to myself or slip up on my words .
 
-**FRUEQUENT** mood swings , I might ignore you for days on end or just go completely silent whenever I feel upset or down
+**FRUEQUENT** mood swings , I might ignore you for days on end or just go completely silent whenever I feel upset
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
