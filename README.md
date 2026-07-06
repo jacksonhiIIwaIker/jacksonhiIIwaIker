@@ -30,7 +30,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 <sub>*i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us , it's just more comfortable for me to use*</sub>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 --------------------------
 
