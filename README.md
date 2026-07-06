@@ -17,7 +17,7 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 **I'M NOT** a good talker either , if u ever interact with me ingame i'll probably just do a small gesture . . 
 
-**I ACT** erratic when i ' m stressed out or just genuinely freaking out so if you can i ' d prefer if you just don ' t approach me during those times
+**I ACT** erratic when i ' m stressed out / overwhelmed or just genuinely freaking out so if you can i ' d prefer if you just don ' t approach me during those times
 
 **FRUEQUENT** mood swings , I might ignore you for days on end or just go completely silent whenever I feel upset
 
