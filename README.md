@@ -25,7 +25,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 **I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
 
-**I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , William Hillwalker [ THE BUTCHERY ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
+**I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
 *I'd also prefer if doubles don't interact . . I am soft sharing with Jackson though ,*
 
 **FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ] ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*And again , if you yumeship with Dr. Clef or Evbo in general please dni it does make me uncomfy*
