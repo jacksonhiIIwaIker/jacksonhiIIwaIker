@@ -5,6 +5,8 @@
 
 ****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
 
+(do not whisper me about helping with build limits unless i ask first :/)
+
 hi um call me **S**unset or **J**ack , I am 14 years old
 
 **IWEC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
