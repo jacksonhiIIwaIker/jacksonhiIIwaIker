@@ -13,20 +13,13 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 **MY CLOSE FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Inversaldamage 💝
 
-**NOT REALLY GOOD** at communicating with people I don't know , so expect me to pause for a couple seconds to think to myself or slip up on my words .
-
-**I'M NOT** a good talker either , if u ever interact with me ingame i'll probably just do a small gesture . . 
-
-**I ACT** erratic when i ' m stressed out / overwhelmed or just genuinely freaking out so if you can i ' d prefer if you just don ' t approach me during those times
-
-**FRUEQUENT** mood swings , I might ignore you for days on end or just go completely silent whenever I feel upset
+(whole sec is a wip rn)
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
 **I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
 
 **I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
-*I'd also prefer if doubles don't interact . . I am soft sharing with Jackson though ,*
 
 **FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ] ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀*And again , if you yumeship with Dr. Clef or Evbo in general please dni it does make me uncomfy*
 
