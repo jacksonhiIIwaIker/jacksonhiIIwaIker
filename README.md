@@ -23,7 +23,7 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 **I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general so
 
-**I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ?
+**I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
