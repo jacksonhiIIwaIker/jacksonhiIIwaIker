@@ -27,7 +27,7 @@ If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!!
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
-**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Pigs , Guinea Pigs , Munchkin cats , Bonesaws , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , and others
+**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Pigs , Guinea Pigs , Munchkin cats , Bonesaws , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Zero Day , UT / DR , and others
 
 **I REALLY LIKE / COMFS** ,, Bunnies / Rabbits , Pigs , SCP Foundation , Furhazard Facility , The Butchery , Bonesaws , and my F / O 's
 
