@@ -7,6 +7,12 @@
 
 ****(do not whisper me about helping with build limits nor promote me to leader just because im a supporter, i will just end up leaving or ignoring you.)****
 
+<p align="center">
+<img width="646" height="346" alt="Screenshot_2026-07-21_194612" src="https://github.com/user-attachments/assets/a9cbefdc-e5a0-4d52-9d94-ac1dc074b10c" />
+</p>
+
+-------------------------
+
 hi um call me **S**unset or **J**ack , I am 14 years old
 
 **IWEC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
