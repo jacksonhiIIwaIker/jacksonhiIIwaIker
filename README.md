@@ -35,7 +35,7 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 **FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]
 
-<sub>**OTHER** , beginner at typology , i like bonesaws and cleavers</sub>
+*also suspected npd but that doesnt matter , not self diagnosing sigh*
 
 <sub>*i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us , it's just more comfortable for me to use*</sub>
 
