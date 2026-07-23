@@ -19,7 +19,7 @@ hi um call me **S**unset or **J**ack , I am 14 years old
 
 If you **IDENTIFY** as something **HARMFUL** plz dni if you can uhm thanks !!!!! ◝(ᵔᗜᵔ)◜
 
-**MY FRIENDS** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
+**MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
 **I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general so
 
