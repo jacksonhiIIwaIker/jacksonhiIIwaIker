@@ -3,6 +3,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who_'_s_looking?&color=red)
 
+******read byf/i******
+
 ****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
 
 ****(do not whisper me about helping with build limits nor promote me to leader just because im a supporter, i will just end up leaving or ignoring you.)****
