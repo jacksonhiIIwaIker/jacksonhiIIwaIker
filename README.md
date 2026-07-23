@@ -7,7 +7,7 @@
 
 ****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
 
-****(do not whisper me about helping with build limits nor promote me to leader just because im a supporter, i will just end up leaving or ignoring you.)****
+****(do not whisper me about helping with build limits nor promote me to leader just because im a supporter, i will just end up leaving or ignoring you unless I volunteered.)****
 
 <p align="center">
 <img width="646" height="346" alt="Screenshot_2026-07-21_194612" src="https://github.com/user-attachments/assets/a9cbefdc-e5a0-4d52-9d94-ac1dc074b10c" />
