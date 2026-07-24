@@ -55,6 +55,13 @@ thats all you need to know okay bye . . I said BYE FUCK OFF
 
 -----------------------
 
+
+<img width="680" height="484" alt="HonestLie1" src="https://github.com/user-attachments/assets/adc5f671-5c26-4ca0-b300-b7c2a0b9a352" />
+
+
+
+------------------
+
 <img width="99" height="56" alt="0119" src="https://github.com/user-attachments/assets/15a4e083-10d8-47b9-aeff-14d12c64d0be" />
 <img width="99" height="56" alt="0025" src="https://github.com/user-attachments/assets/ebce61aa-b2e1-4ad3-b33d-1c16feb35a7c" />
 <img width="99" height="56" alt="0322" src="https://github.com/user-attachments/assets/346cff71-ec05-4b48-9e26-cc3e7ab1cbf1" />
