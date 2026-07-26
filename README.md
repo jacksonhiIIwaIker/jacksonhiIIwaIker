@@ -15,7 +15,7 @@
 
 -------------------------
 
-hi um call me **S**unset or **J**ack(son) or whatever you wish to call me by , I am 14 years old
+hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to call me by , I am 14 years old
 
 **IWEC** or just dont interact at all unless you're oomf because im full of hate and negativity and will lash out on you
 
