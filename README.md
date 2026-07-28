@@ -25,7 +25,7 @@ If you **IDENTIFY** as something **HARMFUL** dni
 
 **I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
-**I BLOCK** freely unleand I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
+**I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
 **DNI (includes basic dni)** , verity fans / lookout3D fans ( unless oomf ) , hh / hb fans ( unless oomf ) , digital circus fans ( unless oomf ) , murder drones fandom , gameoverse as a whole , alienstage fandom ( unless oomf ) , that side of the butchery fandom , authbright supporters , dandys world / qwel bootlickers , forsaken fans ( unless oomf and you know how to keep things to yourself ) , over 30 , endo / willo genic systems , people who don ' t respect / like neos / xenos :/
 
