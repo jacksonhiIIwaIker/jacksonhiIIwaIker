@@ -27,7 +27,7 @@ If you **IDENTIFY** as something **HARMFUL** dni
 
 **I BLOCK** freely unleand I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
-**DNI (includes basic dni)** , verity fans / lookout3D fans ( unless oomf ) , hh / hb fans ( unless oomf ) , digital circus fans ( unless oomf ) , murder drones fandom , gameoverse as a whole , alienstage fandom ( unless oomf ) , that side of the butchery fandom , authbright supporters , dandys world / qwel bootlickers , forsaken fans ( unless oomf and you know how to keep things to yourself ) , over 30
+**DNI (includes basic dni)** , verity fans / lookout3D fans ( unless oomf ) , hh / hb fans ( unless oomf ) , digital circus fans ( unless oomf ) , murder drones fandom , gameoverse as a whole , alienstage fandom ( unless oomf ) , that side of the butchery fandom , authbright supporters , dandys world / qwel bootlickers , forsaken fans ( unless oomf and you know how to keep things to yourself ) , over 30 , endo / willo genic systems , people who don ' t respect / like neos / xenos :/
 
 thats all you need to know okay bye . . I said BYE FUCK OFF
 
