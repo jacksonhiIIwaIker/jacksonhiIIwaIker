@@ -19,7 +19,6 @@ hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to c
 
 **IWEC** or just dont interact at all unless you're oomf 
 
-If you **IDENTIFY** as something **HARMFUL** dni
 
 **MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
