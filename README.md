@@ -6,7 +6,7 @@
 # ******read byf/i******
 
 <p align="center">
-<img width="646" height="346" alt="Screenshot_2026-07-21_194612" src="https://github.com/user-attachments/assets/a9cbefdc-e5a0-4d52-9d94-ac1dc074b10c" />
+
 </p>
 
 -------------------------
