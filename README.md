@@ -17,7 +17,7 @@ sunset or jack or anything else
 
 **IWEC** or just dont interact at all unless you're oomf 
 
-**I fucking HATE** socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
+**I absolutely HATE** socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
 **I BLOCK** freely 
 
