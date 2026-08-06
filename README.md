@@ -1,7 +1,7 @@
 # iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 > " I know that you can flourish in the sea where you'll decay "
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who_'_s_looking?&color=red)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
 # ******r******
 
