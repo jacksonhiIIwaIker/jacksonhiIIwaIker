@@ -11,15 +11,15 @@
 
 -------------------------
 
+[ SP269 , 2W3 , ENTP , [R]|L|UEn , Mo[H]w|D|Rg , Mel/San , ELVF ]
+
 hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to call me by , I am 14 years old
 
 **IWEC** or just dont interact at all unless you're oomf 
 
-**MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
-
 **I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
-**I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
+**I BLOCK** freely 
 
 thats all you need to know okay bye . .
 
