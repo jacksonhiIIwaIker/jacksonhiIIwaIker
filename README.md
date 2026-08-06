@@ -5,10 +5,6 @@
 
 # ******read byf/i******
 
-****( / [CLEFDRAKI](https://artfight.net/~clefdraki) ON ARTFIGHT ! ! CHECK ME OUT :D )****
-
-****(do not whisper me about helping with build limits nor promote me to leader just because im a supporter, i will just end up leaving or ignoring you unless I volunteered.)****
-
 <p align="center">
 <img width="646" height="346" alt="Screenshot_2026-07-21_194612" src="https://github.com/user-attachments/assets/a9cbefdc-e5a0-4d52-9d94-ac1dc074b10c" />
 </p>
@@ -19,17 +15,13 @@ hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to c
 
 **IWEC** or just dont interact at all unless you're oomf 
 
-
 **MY CLOSE FRIENDS IG?** ,, Morning , Arthur , Pastelchocolate , Ryls , R3AL1TY , Meepcat , Inversaldamage 💝
 
 **I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
 **I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
-**DNI (includes basic dni)** , verity fans / lookout3D fans ( unless oomf ) , hh / hb fans ( unless oomf ) , digital circus fans ( unless oomf ) , murder drones fandom , gameoverse as a whole , alienstage fandom ( unless oomf ) , that side of the butchery fandom , authbright supporters , dandys world / qwel bootlickers , forsaken fans ( unless oomf and you know how to keep things to yourself ) , over 30 , endo / willo genic systems , people who don ' t respect / like neos / xenos :/
-
-thats all you need to know okay bye . . I said BYE FUCK OFF
-
+thats all you need to know okay bye . .
 **I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Pigs , Guinea Pigs , Munchkin cats , Bonesaws , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Recallahollowheart , UT / DR , Steins;Gate , Noragami , Pokemon , Phighting , Yonkagor , Forsaken [ I DO NOT SUPPORT SOUL OR PLAY THE GAME ] , Dandy ' s World [ SAME AS FORSAKEN ] , and others
 
 **I REALLY LIKE / COMFS** ,, Bunnies / Rabbits , Pigs , SCP Foundation , Furhazard Facility , The Butchery , Bonesaws , and my F / O 's
