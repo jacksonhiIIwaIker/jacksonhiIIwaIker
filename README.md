@@ -3,25 +3,25 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who_'_s_looking?&color=red)
 
-# ******read byf/i******
+# ******r******
 
 <p align="center">
-
+<img width="736" height="561" alt="e653da61b2058b23e41b89ceb7f93ddc" src="https://github.com/user-attachments/assets/aee70f72-cb17-44c4-88da-fc20467a2535" />
 </p>
 
 -------------------------
 
 *[ SP269 , 2W3 , ENTP , [R]|L|UEn , Mo[H]w|D|Rg , Mel/San , ELVF ]* <sub> beginner in typolgy </sub>
 
-hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to call me by , I am 14 years old
+sunset or jack or anything else
 
 **IWEC** or just dont interact at all unless you're oomf 
 
-**I DONT** really enjoy socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
+**I fucking HATE** socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
 
 **I BLOCK** freely 
 
-thats all you need to know okay bye . .
+thats all you need to know
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -37,12 +37,6 @@ thats all you need to know okay bye . .
 
 -----------------------
 
-
-<img width="680" height="484" alt="HonestLie1" src="https://github.com/user-attachments/assets/adc5f671-5c26-4ca0-b300-b7c2a0b9a352" />
-
-
-
-------------------
 
 <img width="99" height="56" alt="0119" src="https://github.com/user-attachments/assets/15a4e083-10d8-47b9-aeff-14d12c64d0be" />
 <img width="99" height="56" alt="0025" src="https://github.com/user-attachments/assets/ebce61aa-b2e1-4ad3-b33d-1c16feb35a7c" />
