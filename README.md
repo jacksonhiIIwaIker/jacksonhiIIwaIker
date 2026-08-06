@@ -11,7 +11,7 @@
 
 -------------------------
 
-[ SP269 , 2W3 , ENTP , [R]|L|UEn , Mo[H]w|D|Rg , Mel/San , ELVF ]
+*[ SP269 , 2W3 , ENTP , [R]|L|UEn , Mo[H]w|D|Rg , Mel/San , ELVF ]* <sub> beginner in typolgy </sub>
 
 hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to call me by , I am 14 years old
 
