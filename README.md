@@ -6,22 +6,9 @@
 # ******r******
 
 <p align="center">
-<img width="736" height="561" alt="e653da61b2058b23e41b89ceb7f93ddc" src="https://github.com/user-attachments/assets/aee70f72-cb17-44c4-88da-fc20467a2535" />
 </p>
 
 -------------------------
-
-*[ SP269 , 2W3 , ENTP , [R]|L|UEn , Mo[H]w|D|Rg , Mel/San , ELVF ]* <sub> beginner in typolgy </sub>
-
-sunset or jack or anything else
-
-**IWEC** or just dont interact at all unless you're oomf 
-
-**I absolutely HATE** socializing with people I barely know unless they ' re one of my friends nor am I good at talking with people in general or good at making friends
-
-**I BLOCK** freely 
-
-thats all you need to know
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
