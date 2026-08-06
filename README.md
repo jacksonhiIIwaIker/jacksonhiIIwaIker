@@ -22,17 +22,6 @@ hi um call me **S**unset , **A**nthony , **J**ack(son) or whatever you wish to c
 **I BLOCK** freely and I do not unblock / unhide people too often ESPECIALLY WHEN YOU WHISPER MY FRIEND THAT YOU ' RE GOING TO ~~KYS~~ OVER IT ? I also block / hide over the littlest things so don ' t be suprised when I block you for making me mad
 
 thats all you need to know okay bye . .
-**I LIKE** ,, The Butchery , Guts & Blackpowder , Furhazard Facility , Blood Debt , MY GUILT WILL NOT PURIFY ME , Onion/Ongezelling , Minecraft , Yu-gi-oh , Parkour Civilization , Bunnies , Horses , Pigs , Guinea Pigs , Munchkin cats , Bonesaws , Hotline Miami , Saga Of Tanya The Evil , Golden Kamuy , SCP Foundation , Invicible , Hetalia , Recallahollowheart , UT / DR , Steins;Gate , Noragami , Pokemon , Phighting , Yonkagor , Forsaken [ I DO NOT SUPPORT SOUL OR PLAY THE GAME ] , Dandy ' s World [ SAME AS FORSAKEN ] , and others
-
-**I REALLY LIKE / COMFS** ,, Bunnies / Rabbits , Pigs , SCP Foundation , Furhazard Facility , The Butchery , Bonesaws , and my F / O 's
-
-**I YUME WITH** ,, Seawatt [ PARKOUR CIVILIZATION ] , Jackson Hillwalker [ THE BUTCHERY ] , Oksan Ryosha [ BLOOD DEBT ] , Veronika Kazakova [ BLOOD DEBT ] , Ryman Yegerov [ BLOOD DEBT ] .                                
-
-**FICTKINS** , Dr. Alto Clef [ SCP FOUNDATION ] , EVBO [ PVP / PARKOUR CIVILIZATION ]
-
-***also suspected npd but that doesnt matter who CARES***
-
-<sub>*i think i'll genuinely get jumped if I don't mention this but I do alternate from using I / Me and We / Us , it's just more comfortable for me to use*</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
