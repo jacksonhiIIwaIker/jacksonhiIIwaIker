@@ -1,7 +1,7 @@
 
 
 # HEAVY iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
-> " are they really worth all the things i do to you ? or am i just obsessive over you ? " - selfish yonkagor™
+> "
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
