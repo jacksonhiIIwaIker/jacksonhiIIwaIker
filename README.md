@@ -1,4 +1,5 @@
 
+
 # HEAVY iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 > " i ' ll mourn for your embrace, someone will surely fill my place . "
 
@@ -6,7 +7,7 @@
 
 
 <p align="center">
-<img width="500" height="287" alt="LiTR22" src="https://github.com/user-attachments/assets/43faf265-cc47-48ea-b141-3fd07cfc428e" />
+  <img width="600" height="365" alt="06d8ba8c5a48ddf6a1722340fb30e008" src="https://github.com/user-attachments/assets/1863680a-7211-4966-87a7-e6e48553d798" />
 </p>
 
 
