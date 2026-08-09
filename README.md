@@ -7,10 +7,13 @@
 
 shedtwt heavy dni
 
+listen to yonkagor especially mr sunfish
 
 
 
 <p align="center">
+  <img width="736" height="447" alt="000388659e6df9f8ab201ee25cf9341e" src="https://files.catbox.moe/slt0uy.png" />
+
 </p>
 
 -------------------------
