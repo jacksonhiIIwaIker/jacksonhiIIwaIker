@@ -5,6 +5,10 @@
 
 # ******r******
 
+shedtwt dni big trigger
+
+everything dni everything is becoming a trigger to me
+
 <p align="center">
 </p>
 
