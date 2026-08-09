@@ -7,7 +7,6 @@
 
 shedtwt heavy dni big trigger
 
-dniuc
 
 
 
