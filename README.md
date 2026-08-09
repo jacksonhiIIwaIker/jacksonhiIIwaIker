@@ -7,7 +7,7 @@
 
 shedtwt heavy dni big trigger
 
-everything and everyone dniuc
+everything and everyone dniuc huge issues irl mentally
 
 
 
