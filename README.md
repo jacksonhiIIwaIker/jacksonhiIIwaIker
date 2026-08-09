@@ -1,13 +1,13 @@
 
 
 # HEAVY iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
-> " are they really worth all the things i do to you ? or am i just obsessive over you? " - selfish yonkagor™
+> " are they really worth all the things i do to you ? or am i just obsessive over you ? " - selfish yonkagor™
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
 
 <p align="center">
-<img width="374" height="211" alt="yonkagor-i-forgot-that-you-exist" src="https://github.com/user-attachments/assets/2c608d94-d54c-4736-8f7c-50e8a9038d0b" />
+<img width="748" height="422" alt="yonkagor-i-forgot-that-you-exist" src="https://github.com/user-attachments/assets/2c608d94-d54c-4736-8f7c-50e8a9038d0b" />
 
 
 </p>
