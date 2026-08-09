@@ -6,7 +6,7 @@
 
 
 <p align="center">
-<img width="1000" height="556" alt="LiTR22" src="https://github.com/user-attachments/assets/43faf265-cc47-48ea-b141-3fd07cfc428e" />
+<img width="500" height="287" alt="LiTR22" src="https://github.com/user-attachments/assets/43faf265-cc47-48ea-b141-3fd07cfc428e" />
 </p>
 
 
