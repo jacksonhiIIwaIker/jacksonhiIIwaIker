@@ -13,8 +13,9 @@ listen to yonkagor especially mr sunfish
 
 
 
+
 <p align="center">
-  <img width="736" height="447" alt="000388659e6df9f8ab201ee25cf9341e" src="https://files.catbox.moe/slt0uy.png" />
+  <img width="405" height="357" alt="SeaBirdDoodle3" src="https://github.com/user-attachments/assets/3e0deddc-01a5-4aec-805f-865c34d45a90" />
 
 </p>
 
