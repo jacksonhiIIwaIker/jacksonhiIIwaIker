@@ -5,7 +5,7 @@
 
 # ******r******
 
-shedtwt heavy dni big trigger
+shedtwt heavy dni
 
 
 
