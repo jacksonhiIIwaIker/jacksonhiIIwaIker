@@ -15,16 +15,6 @@
 shedtwt HEAVY dni
 
 
-listen to yonkagor especially mr sunfish
-
-
-
-<p align="center">
-  <img width="568" height="320" alt="copy_55792C3A-787C-42B9-BB90-DAAC9E3FFAF1 (1)" src="https://github.com/user-attachments/assets/cde576cc-d338-448f-b053-0643917cb935" />
-
-</p>
-
-
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
