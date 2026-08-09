@@ -1,12 +1,12 @@
 
 # HEAVY iwecare/caution or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
-> " i ' ll mourn for your embrace, someone will surely fill my place "
+> " i ' ll mourn for your embrace, someone will surely fill my place . "
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
 
 <p align="center">
-<img width="1000" height="311" alt="LiTR19" src="https://github.com/user-attachments/assets/1563c64f-3981-4d41-bd22-bb5ecb0000ac" />
+<img width="1000" height="556" alt="LiTR22" src="https://github.com/user-attachments/assets/43faf265-cc47-48ea-b141-3fd07cfc428e" />
 </p>
 
 
