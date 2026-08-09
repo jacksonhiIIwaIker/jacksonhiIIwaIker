@@ -7,7 +7,7 @@
 
 shedtwt heavy dni big trigger
 
-everything and everyone dniuc (unless its for a quick talk or smth) huge issues rn
+dniuc
 
 
 
