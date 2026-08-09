@@ -1,13 +1,15 @@
 
 
 # HEAVY iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
-> " i ' ll mourn for your embrace, someone will surely fill my place . "
+> " are they really worth all the things i do to you ? or am i just obsessive over you? " - selfish yonkagor™
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
 
 <p align="center">
-  <img width="600" height="365" alt="06d8ba8c5a48ddf6a1722340fb30e008" src="https://github.com/user-attachments/assets/1863680a-7211-4966-87a7-e6e48553d798" />
+<img width="374" height="211" alt="yonkagor-i-forgot-that-you-exist" src="https://github.com/user-attachments/assets/2c608d94-d54c-4736-8f7c-50e8a9038d0b" />
+
+
 </p>
 
 
