@@ -5,17 +5,11 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=who&color=red)
 
-
-<p align="center">
-<img width="748" height="422" alt="yonkagor-i-forgot-that-you-exist" src="https://github.com/user-attachments/assets/2c608d94-d54c-4736-8f7c-50e8a9038d0b" />
-
-
-</p>
-
-
-# ******r******
-
 **shedtwt HEAVY dni**
+pro-endo dni
+profic dni
+verity fans dni
++ basic dni
 
 
 
