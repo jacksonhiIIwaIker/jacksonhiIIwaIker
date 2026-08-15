@@ -23,6 +23,8 @@ dni pro - endo
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
+favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , and bunnies
+
 
 <sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
