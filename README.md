@@ -10,9 +10,15 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-14 years old ˚(∘˃ㅿ˂∘˚) 
+14 years old ˚(∘˃ㅿ˂∘˚) ,
+
+ENTP 2w3 [R]/L/UEn Mo[H]w/D/Rg Mel/San ELVF
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
+
+we mainly like my guilt will not purify me , the moon i rot behind , scpf , hetalia , parkour civilzation , drawn out , yonkagor , and the butchery
+
+also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it
 
 
 
