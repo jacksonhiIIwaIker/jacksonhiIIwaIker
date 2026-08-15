@@ -4,10 +4,9 @@
 > fixing this up atm
 
 
-***❌ Do not come up begging for my supporter perks , it is annoying and i will ignore you***
 
 <p align=center>
-<img width="368" height="248" alt="014afb98344c460ba05fb50f59018f9d" src="https://github.com/user-attachments/assets/7cf78913-afcb-4486-a059-32050e12e34a" />
+<img width="1200" height="200" alt="a0c2e0f16538ba4700849844cc8d76b6" src="https://github.com/user-attachments/assets/2ce1da88-2100-4e50-8cdc-b2824fc905fb" />
 </p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
