@@ -5,12 +5,12 @@
 
 
 <p align=center>
-<img width="319" height="209" alt="b84d9e5df65002832d250870ec127cb9" src="https://github.com/user-attachments/assets/691a4f9f-5b5e-4f2f-9684-4f1cf5733479" />
+<img width="368" height="248" alt="014afb98344c460ba05fb50f59018f9d" src="https://github.com/user-attachments/assets/7cf78913-afcb-4486-a059-32050e12e34a" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=welcome_aboard!&color=yellow)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-14 years old
+14 years old ˚(∘˃ㅿ˂∘˚) 
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
