@@ -5,7 +5,7 @@
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-20000 years old ˚(∘˃ㅿ˂∘˚) ,
+minor
 
 jack / anthony / alto / francis or whatever
 
@@ -15,9 +15,9 @@ i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered 
 
 dni pro - endo
 
-we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , parkour civilzation , furhazard facility , yonkagor , and the butchery
+we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
-favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies
+favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies ˚(∘˃ㅿ˂∘˚) 
 
 my FAVORITE youtuber is Dol9hin shes so cool watch her videos . . also seawattgaming hes cool too
 
