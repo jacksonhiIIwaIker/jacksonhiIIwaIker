@@ -4,8 +4,9 @@
 > fixing this up when i feel like it 
 
 
-
-<img width="736" height="414" alt="b84d9e5df65002832d250870ec127cb9" src="https://github.com/user-attachments/assets/691a4f9f-5b5e-4f2f-9684-4f1cf5733479" />
+<p align=center>
+<img width="319" height="209" alt="b84d9e5df65002832d250870ec127cb9" src="https://github.com/user-attachments/assets/691a4f9f-5b5e-4f2f-9684-4f1cf5733479" />
+</p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=welcome_aboard!&color=yellow)
 
