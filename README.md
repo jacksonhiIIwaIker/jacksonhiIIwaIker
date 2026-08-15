@@ -13,8 +13,6 @@ jack / anthony / alto / francis or whatever
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-dni pro - endo
-
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
 favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies ˚(∘˃ㅿ˂∘˚) 
