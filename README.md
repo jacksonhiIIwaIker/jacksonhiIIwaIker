@@ -9,6 +9,8 @@
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=welcome_aboard!&color=yellow)
 
+14 years old
+
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
 
