@@ -6,7 +6,7 @@
 
 
 <p align=center>
-<img width="498" height="277" alt="letters-from-sixteen" src="https://github.com/user-attachments/assets/bce9a4c8-ff71-4a91-b562-3648c82a3b04" />
+<img width="500" height="250" alt="routine-yonkagor" src="https://github.com/user-attachments/assets/65da1a66-7e85-4b11-a0cb-92c319331e1a" />
 </p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
