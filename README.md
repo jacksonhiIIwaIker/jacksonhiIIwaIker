@@ -19,7 +19,7 @@ ENTP 2w3 [R]/L/UEn Mo[H]w/D/Rg Mel/San ELVF
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-dni pro - endo / ableist people 
+dni pro - endo
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
