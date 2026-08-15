@@ -9,7 +9,7 @@
 
 jack / anthony / alto / francis or whatever
 
-⊹ ࣪ ˖ ENTP 2w3 [R]/L/UEn  Mo[H]w/D/Rg  Mel-San FVEL
+⊹ ࣪ ˖ ENTP 2w3 [R]/L/UEn  Mo[H]w/D/Rg  Mel-San VEFL
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
