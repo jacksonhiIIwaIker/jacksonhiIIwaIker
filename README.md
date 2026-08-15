@@ -1,6 +1,6 @@
 
 
-# HEAVY iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
+# iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 > fixing this up when i feel like it 
 
 
@@ -8,6 +8,10 @@
 <img width="736" height="414" alt="b84d9e5df65002832d250870ec127cb9" src="https://github.com/user-attachments/assets/691a4f9f-5b5e-4f2f-9684-4f1cf5733479" />
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=welcome_aboard!&color=yellow)
+
+i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
+
+
 
 
 
