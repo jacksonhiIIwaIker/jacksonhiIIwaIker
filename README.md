@@ -9,9 +9,11 @@
 <img width="1200" height="200" alt="a0c2e0f16538ba4700849844cc8d76b6" src="https://github.com/user-attachments/assets/2ce1da88-2100-4e50-8cdc-b2824fc905fb" />
 </p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
 14 years old ˚(∘˃ㅿ˂∘˚) ,
+
+jack / travis / alto / francis or whatever
 
 ENTP 2w3 [R]/L/UEn Mo[H]w/D/Rg Mel/San ELVF
 
