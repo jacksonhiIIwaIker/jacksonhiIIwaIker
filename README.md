@@ -25,6 +25,8 @@ we mainly like things like my guilt will not purify me , the moon i rot behind ,
 
 favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , and bunnies
 
+my FAVORITE youtuber is Dol9hin shes so cool watch her videos . . also seawattgaming hes cool too
+
 
 <sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
