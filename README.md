@@ -18,7 +18,7 @@ i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered 
 
 we mainly like my guilt will not purify me , the moon i rot behind , scpf , hetalia , parkour civilzation , drawn out , yonkagor , and the butchery
 
-also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it
+<sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
 
 
