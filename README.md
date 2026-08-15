@@ -17,8 +17,9 @@ i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered 
 
 
 
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31fa6d5g6xcook6zbl3bti7qr6iq&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=850000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 --------------------------
 
