@@ -17,7 +17,7 @@ dni pro - endo
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
-favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , and bunnies
+favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies
 
 my FAVORITE youtuber is Dol9hin shes so cool watch her videos . . also seawattgaming hes cool too
 
