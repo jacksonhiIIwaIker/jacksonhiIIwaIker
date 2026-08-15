@@ -4,6 +4,8 @@
 > fixing this up atm
 
 
+***❌ Do not come up begging for my supporter perks , it is annoying and i will ignore you***
+
 <p align=center>
 <img width="368" height="248" alt="014afb98344c460ba05fb50f59018f9d" src="https://github.com/user-attachments/assets/7cf78913-afcb-4486-a059-32050e12e34a" />
 </p>
@@ -16,7 +18,10 @@ ENTP 2w3 [R]/L/UEn Mo[H]w/D/Rg Mel/San ELVF
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-we mainly like my guilt will not purify me , the moon i rot behind , scpf , hetalia , parkour civilzation , drawn out , yonkagor , and the butchery
+dni pro - endo / ableist people 
+
+we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , hetalia , parkour civilzation , furhazard facility , yonkagor , and the butchery
+
 
 <sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
