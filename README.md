@@ -7,7 +7,7 @@
 
 14 years old ˚(∘˃ㅿ˂∘˚) ,
 
-jack / travis / alto / francis or whatever
+jack / anthony / alto / francis or whatever
 
 ENTP 2w3 [R]/L/UEn Mo[H]w/D/Rg Mel/San ELVF
 
