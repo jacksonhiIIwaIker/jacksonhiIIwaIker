@@ -6,7 +6,7 @@
 
 
 <p align=center>
-<img width="1200" height="200" alt="a0c2e0f16538ba4700849844cc8d76b6" src="https://github.com/user-attachments/assets/2ce1da88-2100-4e50-8cdc-b2824fc905fb" />
+<img width="359" height="208" alt="6f2c75429c9e2857a27c05fe93a7d2b7" src="https://github.com/user-attachments/assets/1a3bdac8-5ab1-4e2a-82c0-19115f869512" />
 </p>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
