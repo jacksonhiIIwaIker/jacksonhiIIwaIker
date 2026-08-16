@@ -1,11 +1,10 @@
 
-
 # iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
 > " singing my counterfeit tones , throw away faces i own . "⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-minor <img align="right" width="498" height="173" alt="yonkagor-memory-merge" src="https://github.com/user-attachments/assets/4c37b89a-77d2-4154-a5a9-2dccd8b50d0f" />
+minor <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
 
 
 jack / anthony / alto / francis or whatever
