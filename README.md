@@ -15,7 +15,7 @@ i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered 
 
 i ' m extremely sensitive and triggered pretty easily , especially when it involves someone dear to us , please be patient .
 
-i ' m horrible at communication when it involves people i ' m not familiar with , harsh topics , or just crowded spaces , i also have a pretty bad time trying to express empathy towards others , i ' m trying !
+i ' m horrible at communication when it involves people i ' m not familiar with , harsh topics , or just in crowded spaces , i also have a pretty bad time trying to express empathy towards others , i ' m trying !
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
