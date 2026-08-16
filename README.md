@@ -19,6 +19,8 @@ i ' m extremely sensitive <sub>( and most of the time take things to heart )</su
 
 i ' m horrible at communication when it involves people i ' m not familiar with , harsh topics , or just in crowded spaces , i also have a pretty bad time trying to express empathy towards others , i ' m trying !
 
+i dislike the idea of making friends and meeting new people , i usually avoid interactions with people i do not know unless it is needed
+
 we mainly like things like my guilt will not purify me , the moon i rot behind , cry of fear , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
 favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies ˚(∘˃ㅿ˂∘˚) 
