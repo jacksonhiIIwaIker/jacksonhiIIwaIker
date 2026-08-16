@@ -15,7 +15,7 @@ jack / anthony / alto / francis or whatever , i don ' t really care
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-i ' m extremely sensitive <sub>( which means most of the time take things to heart and overthink it )</sub> and triggered pretty easily , especially when it involves someone dear to us . emotional outbursts happen regularly due to that , please be patient and do not worry .
+i ' m extremely sensitive <sub>( which means most of the time i take things to heart and overthink it )</sub> and triggered pretty easily , especially when it involves someone dear to us . emotional outbursts happen regularly due to that , please be patient and do not worry .
 
 i ' m horrible at communication when it involves people i ' m not familiar with , harsh topics , or just in crowded spaces , i also have a pretty bad time trying to express empathy towards others , i ' m trying !
 
