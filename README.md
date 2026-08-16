@@ -14,7 +14,7 @@ jack / anthony / alto / francis or whatever
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-i ' m not that good at remembering things that 
+i ' m not that good at remembering things that well
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
