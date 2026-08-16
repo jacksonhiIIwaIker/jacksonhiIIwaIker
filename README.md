@@ -21,6 +21,7 @@ favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats
 
 my FAVORITE youtuber is Dol9hin shes so cool watch her videos . . also seawattgaming hes cool too
 
+i suspect myself of NPD but until i get a proper appointment or diagnosed ( never ) it ' ll just be a big suspection hahaokstop
 
 <sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
