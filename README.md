@@ -5,7 +5,7 @@
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-minor <img align="right" width="320" height="180" alt="clownfish-yonkagor" src="https://github.com/user-attachments/assets/5b44aa1d-e619-4708-860b-97d094da8424" />
+minor <img align="right" width="498" height="173" alt="yonkagor-memory-merge" src="https://github.com/user-attachments/assets/4c37b89a-77d2-4154-a5a9-2dccd8b50d0f" />
 
 
 jack / anthony / alto / francis or whatever
