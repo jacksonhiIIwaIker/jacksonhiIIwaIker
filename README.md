@@ -21,7 +21,7 @@ i ' m horrible at communication when it involves people i ' m not familiar with 
 
 i dislike the idea of making friends and meeting new people , i usually avoid interactions with people i do not know unless it is needed
 
-we mainly like things like my guilt will not purify me , the moon i rot behind , cry of fear , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
+we mainly like things like my guilt will not purify me** , the moon i rot behind* , cry of fear , scpf* , letters from 16 , minecraft** , parkour civilzation** , furhazard facility** , yonkagor** , and the butchery*
 
 favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies ˚(∘˃ㅿ˂∘˚) 
 
