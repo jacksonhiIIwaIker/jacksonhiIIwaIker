@@ -4,7 +4,7 @@
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-minor <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
+minor , genderfaun , unlabeled <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
 
 
 jack / anthony / alto / francis or whatever
