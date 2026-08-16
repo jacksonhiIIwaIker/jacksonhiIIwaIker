@@ -5,13 +5,16 @@
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=red)
 
-minor
+minor <img align="right" width="320" height="180" alt="clownfish-yonkagor" src="https://github.com/user-attachments/assets/5b44aa1d-e619-4708-860b-97d094da8424" />
+
 
 jack / anthony / alto / francis or whatever
 
 ⊹ ࣪ ˖ ENTP | 2w3 | SP2 | 269 | [R]/L/UEn | Mo[H]w/D/Rg | Mel-San | VEFL
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
+
+i ' m not that good at remembering things that 
 
 we mainly like things like my guilt will not purify me , the moon i rot behind , scpf , letters from 16 , minecraft , parkour civilzation , furhazard facility , yonkagor , and the butchery
 
