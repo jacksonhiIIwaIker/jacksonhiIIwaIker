@@ -15,21 +15,16 @@ jack / anthony / alto / francis or whatever , i don ' t really care
 
 i am on subtwts like ~~sh~~twt so please be mindful if you are easily triggered by that , dni anti - recov 
 
-i ' m extremely sensitive <sub>( which means most of the time i take things to heart and overthink it )</sub> and triggered pretty easily , especially when it involves someone dear to us . emotional outbursts happen regularly due to that , please be patient , do not worry , and do not treat me as less of a person .
+wip section
 
-i ' m horrible at communication when it involves people i ' m not familiar with , harsh topics , or just in crowded spaces , i also have a pretty bad time trying to express empathy towards others , i ' m trying !
+wip section
 
 i dislike the idea of making friends and meeting new people , i usually avoid interactions with people i do not know unless it is needed
 
-we mainly like things like my guilt will not purify me** , the moon i rot behind* , cry of fear , scpf* , letters from 16 , minecraft** , parkour civilzation** , furhazard facility** , yonkagor** , and the butchery*
+we mainly like things like my guilt will not purify me** , the moon i rot behind* , cry of fear , afraid of monsters , scpf* , letters from 16 , minecraft** , parkour civilzation** , furhazard facility** , yonkagor** , and the butchery*
 
-favorite animals are guinea pigs , pigs , dogs , unicorns , horses , cows , cats , and bunnies ˚(∘˃ㅿ˂∘˚) 
 
-my FAVORITE youtuber is Dol9hin shes so cool watch her videos . . also seawattgaming hes cool too
-
-i suspect myself of NPD but until i get a proper appointment or diagnosed ( never ) it ' ll just be a big suspection hahaokstop
-
-<sub>also to clear up any confusion, i alternate from i / me and we / us because i feel most comfortable using it</sub>
+<sub>also i alternate from i / me and we / us because i feel most comfortable using it</sub>
 
 
 
