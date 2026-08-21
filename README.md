@@ -6,7 +6,7 @@
 
 
 
-minor , apagender , unlabeled , primarily they / them but he / him usage is fine <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
+minor , unlabeled , primarily they / them but he / him usage is fine <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
 
 
 jack / anthony / alto / francis or whatever , i don ' t really care
