@@ -1,12 +1,13 @@
 
 # iwec or dniuf <img width="20" height="20" alt="red-039" src="https://github.com/user-attachments/assets/658ec4ea-597c-4a18-b1fc-f5bbb5e30783" />
-> " singing my counterfeit tones , throw away faces i own . "⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+> " and feeling shit and bitter and angry all the time just . . . eats away at you . "⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
 ![bark](https://komarev.com/ghpvc/?username=cleavercap&label=whats_up&color=grey)
 
 
 
-minor , unlabeled , primarily they / them but he / him usage is fine <img align="right" width="374" height="211" alt="counterfeit-tones-jonkagor" src="https://github.com/user-attachments/assets/8b23c8b5-2db2-46be-a7c4-6cfed8d5fb89" />
+minor , unlabeled , primarily they / them but he / him usage is fine <img align="right" img width="248" height="245" alt="spokeishere-unstable-smp" src="https://github.com/user-attachments/assets/ae775f4c-937b-4a96-8665-45a18e3923c6" />
+
 
 
 jack / anthony / alto / francis or whatever , i don ' t really care
