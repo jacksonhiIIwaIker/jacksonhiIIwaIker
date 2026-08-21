@@ -6,7 +6,7 @@
 
 
 
-minor , unlabeled , primarily they / them but he / him usage is fine <img align="right" img width="248" height="245" alt="spokeishere-unstable-smp" src="https://github.com/user-attachments/assets/ae775f4c-937b-4a96-8665-45a18e3923c6" />
+minor , unlabeled , primarily they / them but he / him usage is fine <img align="right" img width="346" height="345" alt="spokeishere-unstable-smp" src="https://github.com/user-attachments/assets/ae775f4c-937b-4a96-8665-45a18e3923c6" />
 
 
 
